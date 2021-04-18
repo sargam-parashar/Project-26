@@ -1,0 +1,11 @@
+Sift the dry ingredients into a large bowl first to get rid of any hard lumps caused during storage, while getting more air into the mixture.
+Then add in your wet ingredients. Just keep in mind that the cake batter is VERY thin. Don’t be tempted to add more flour as this is what makes the cake super soft and moist.
+The ONLY thing you can add to this already perfect cake recipe is a couple teaspoons of instant coffee or espresso for an even deeper chocolate flavour. Of course, this is totally and COMPLETELY optional. You cannot taste the coffee flavour.
+Super-fine cake flour can be used if you have it for an even softer crumb but is not necessary.
+This perfect combination of oil, milk and boiling water makes this recipe stand out without having to use melted chocolate. The fats in the oil, protein in milk and temperature of the water makes the chocolate flavour develop nicely while baking and providing the essentials for that moist crumb you’re looking for.
+Don’t over-mix OR over-bake. This chocolate cake only needs about 30-35 minutes in the oven, or until a wooden skewer inserted into the centre comes out clean.
+Make sure you preheat your oven before starting. We’ve included temperatures for standard AND fan or convention ovens.
+If using springform pans, note that they are NOT 100% leakproof. Very thin cake batters such as this one will leak through the base. To combat this issue, line the base with parchment paper coming up where the sides meets the base to create a ‘cover’. Place a baking sheet on the shelf below the cake pan (or the bottom of the oven) to catch any stray drips. Don’t put cake pans directly on the pan as the heat will effect the base of your cakes.
+Let cakes cool COMPLETELY before frosting. You can make this chocolate cake the day before and frost the next day.
+Both raising agents are used in this recipe to ensure it rises enough. The sponge itself contains oil, which is quite a heavy ingredient that normally creates a dense result. Using both raising agents together balance this out to provide just the right amount of rise.
+If your cakes turn out flat, make sure you check expiry dates. Keep in mind both baking powder and soda will lose their effectiveness if kept too long in your pantry.
